@@ -1,3 +1,3 @@
-## M.Goto(KurumiAllergy)
+## M Goto(KurumiAllergy)
 
 
